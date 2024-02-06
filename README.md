@@ -1,2 +1,2 @@
 # jujuba
-pro meu aorzinho
+pro meu amorzinho
